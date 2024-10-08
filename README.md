@@ -14,3 +14,6 @@ Data Analyst with over 4 years of experience specializing in Marketing, HR Perfo
 - Storytelling
 - Project Management
 - Cross-Functional Collaboration
+
+- - llittle
+< this is mye
