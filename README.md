@@ -15,5 +15,5 @@ Data Analyst with over 4 years of experience specializing in Marketing, HR Perfo
 - Project Management
 - Cross-Functional Collaboration
 
-- - llittle
-< this is mye
+# Projects
+< this is some projects I have done>
